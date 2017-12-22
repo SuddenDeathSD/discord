@@ -1,2 +1,2 @@
 # discord
-우히히
+hi i'm gay
